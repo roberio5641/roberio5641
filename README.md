@@ -1,4 +1,4 @@
-### Olá, tudo bem com você, me chamo Robério, muito prazer 🤗🤗
+
 
 <div align="center">
   <a href="https://github.com/roberio5641">
